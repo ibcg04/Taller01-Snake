@@ -23,3 +23,6 @@ INTEGRANTE 3 (CARLOS LUIS LOPEZ PERREZ)
 
 ![image](https://github.com/user-attachments/assets/8a6d2d23-c341-4d9a-930d-448a28b8a42a)
 
+ACTUALIZACIÓN FINAL DLE REPOSTORIO LOCAL (LIDER)
+
+![image](https://github.com/user-attachments/assets/a10d375e-d1f7-4d5b-9aff-678596e8fd16)
